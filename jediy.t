@@ -1,0 +1,1 @@
+hai nama saya jediy saya kuliah di hamzanwadi pancor nwdi
